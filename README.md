@@ -1,1 +1,1 @@
-![ss](https://github.com/fionaharia/Youtube-Clone/assets/112898171/b32c1933-731b-4d0e-9a16-ce8e30a17f78)
+![ss2](https://github.com/fionaharia/Youtube-Clone/assets/112898171/edd02370-af30-475a-be6f-e71e9bba2ee8)
